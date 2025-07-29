@@ -1,0 +1,1 @@
+grusistgorbehamatkochakistketshen of yeden fal ist mainemamlekatshenakhtid shireden fun mainemamerth shireich name gorbeye mortezaalich binerazolghodrateyneÄ
